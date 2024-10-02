@@ -1,6 +1,6 @@
 # Blum - Auto Claim Bot
 
-🔗 **Referral Link**: [Blum](https://t.me/BlumCryptoBot/app?startapp=ref_4WwBGtCuHW)
+🔗 **Referral Link**: [Blum](https://t.me/blum/app?startapp=tribe_fierlessy-ref_uD976Ode4e)
 
 ## 📢 Telegram Group
 
